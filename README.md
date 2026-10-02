@@ -1,0 +1,2 @@
+# Modo-juiz-
+De Omega 
